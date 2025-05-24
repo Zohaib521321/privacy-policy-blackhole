@@ -1,6 +1,6 @@
 # Privacy Policy for Black Hole
 
-**Effective Date:** [Insert Date]
+**Effective Date:** 24 May 2025
 
 Black Hole ("we", "our", or "us") respects your privacy. This Privacy Policy explains how we collect, use, and protect your information when you use our mobile application **Black Hole**.
 
