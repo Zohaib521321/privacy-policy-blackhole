@@ -76,4 +76,4 @@ We may update this Privacy Policy at any time. Changes will be posted in the app
 
 ## 9. Contact Us
 
-📧 Email: [your-email@example.com]
+📧 Email: [delacruzgeuris8@gmail.com]
